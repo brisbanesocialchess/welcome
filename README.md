@@ -1,20 +1,33 @@
-# Welcome
+# 🎉 Welcome to Brisbane Social Chess Inc! ♟️
 
-## What we’re about
+## What We’re About
 
-At Brisbane Social Chess Inc, we're all about having a relaxed time pushing pawns and making memories. This isn't your serious, score-keeping chess club - we're a bunch of fun-loving folks who just want to shake the dust off our chess skills and enjoy good company. Our motto? Fun, friendly and free. Whether you're a chess newbie or a seasoned grandmaster, you're welcome in our club. We know that chess has a way of bringing together curious and creative souls from all walks of life. And when you put those eclectic personalities around a chess board, the good times will roll themselves.
+At **Brisbane Social Chess Inc**, we're all about having a relaxed time pushing pawns and making memories. This isn't your serious, score-keeping chess club—**we're a bunch of fun-loving folks** who just want to shake the dust off our chess skills and enjoy good company.
 
-So leave your ego at the door and come ready to laugh, learn, and make friends. Be a good sport when you lose - trust us, we've all been there. Lend a hand if someone needs a coaching or just some encouragement. And if you've got suggestions on new places for us to meet up and play, we're all ears!
+### Our Motto?
+**Fun, Friendly, and Free!** ✨
 
-The bottom line is, if you know the basics, you've got all the skills you need. Now's the time to get behind Brisbane's free social chess movement!
+Whether you're a chess newbie or a seasoned grandmaster, you're welcome in our club. We know that chess has a way of bringing together curious and creative souls from all walks of life. When you put those eclectic personalities around a chessboard, the good times will roll themselves! 🎊
 
-Our website is now established https://www.brisbanesocialchess.org.au/
+### Join Us for the Fun!
+So leave your ego at the door and come ready to laugh, learn, and make friends. Here’s what you can expect:
+- Be a good sport when you lose—trust us, we've all been there!
+- Lend a hand if someone needs coaching or just some encouragement.
+- If you’ve got suggestions for new places to meet up and play, we’re all ears! 👂
 
-We are going to be improving this as often as possible. Do you have web skills? Help us make it look cool!
-Pretty please take our 30-second club census here: https://goo.gl/VQGmes
+**The bottom line?** If you know the basics, you've got all the skills you need. Now's the time to get behind Brisbane's free social chess movement! 🙌
 
-And if you love hanging with us, consider becoming an official club member for $10/year.
+### 🌐 Our Website
+Check out our website: [brisbanesocialchess.org.au](https://www.brisbanesocialchess.org.au/)
 
-Do that using this link https://app.joinit.com/o/brisbane-social-chess
+We are committed to improving it as often as possible. **Do you have web skills?** Help us make it look cool! 💻
 
-Your membership keeps the good times going!
+### Quick Survey
+Pretty please take our **30-second club census** here: [Club Census](https://goo.gl/VQGmes)
+
+### Become a Member!
+If you love hanging with us, consider becoming an official club member for **$10/year**. 
+
+Do that using this link: [Join Us](https://app.joinit.com/o/brisbane-social-chess)
+
+Your membership keeps the good times going! 🎈
